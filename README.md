@@ -1,4 +1,5 @@
-,,☏"
-----
-*pfp, image by renurdoc on tumblr*
-![50 sin título_20250105122900](https://github.com/user-attachments/assets/56eb6038-49b0-4c1b-8ae7-2e0bcfb349c9)
+![2655897_a9b53](https://github.com/user-attachments/assets/1bb1d07a-0610-4c27-b008-5d53b9ba3367)
+
+𝔤𝔢𝔬𝔯𝔤𝔢𝔱𝔱𝔢 𝔪𝔢 𝔤𝔢𝔬𝔯𝔤𝔢𝔱𝔱𝔢 𝔶𝔬𝔲
+---
+![ezgif com-animated-gif-maker (3)](https://github.com/user-attachments/assets/bb33df3f-2ed3-4d05-8b23-87fa05371872)
