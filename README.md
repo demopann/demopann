@@ -2,6 +2,8 @@
 
 ![tumblr_ca622055c5031950e69f3eab1fd769c4_3f04c532_400](https://github.com/user-attachments/assets/3d3104a0-1195-4789-bffb-7d9c902ae69f)
 
+**Father, into your hands I commend my spirit**
+---
 
 ![tumblr_c1692031561a484fbac2b4eddae6f41d_f800535b_400](https://github.com/user-attachments/assets/c77e9803-ce1a-42ab-8742-700f1ea12024)![tumblr_c1692031561a484fbac2b4eddae6f41d_f800535b_400](https://github.com/user-attachments/assets/c77e9803-ce1a-42ab-8742-700f1ea12024)
 
