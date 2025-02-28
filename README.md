@@ -6,7 +6,7 @@
 
 ![tumblr_d732063abdf58cff91705a47010a97dd_e6da0745_400](https://github.com/user-attachments/assets/7d2a7f66-4128-46cd-9786-5e1c5e06c005)![tumblr_d732063abdf58cff91705a47010a97dd_e6da0745_400](https://github.com/user-attachments/assets/7d2a7f66-4128-46cd-9786-5e1c5e06c005)
 
-*'🖊. "iylsm margo and zee ty for being such friends <3*
+*'🖊. "iylsm margo and zee ty for being such friends <3 '.*
 
 ![XBIdCFxY](https://github.com/user-attachments/assets/138f1279-4b0d-49c0-9fbe-ed54c310be87) 
 ![tumblr_d732063abdf58cff91705a47010a97dd_e6da0745_400](https://github.com/user-attachments/assets/7d2a7f66-4128-46cd-9786-5e1c5e06c005)![tumblr_d732063abdf58cff91705a47010a97dd_e6da0745_400](https://github.com/user-attachments/assets/7d2a7f66-4128-46cd-9786-5e1c5e06c005)
