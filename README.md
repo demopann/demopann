@@ -15,5 +15,3 @@ for being such friends
 
 
  ㅤ󠀠󠀠ㅤ󠀠󠀠 ㅤ <3 ㅤ󠀠󠀠ㅤ󠀠󠀠
-
-  ㅤ󠀠󠀠ㅤ󠀠󠀠 ㅤ󠀠󠀠
