@@ -1,22 +1,3 @@
-[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31x7nxf2ao2ae5e4d62yclnezpn4&cover_image=true&theme=default&show_offline=false&background_color=121212&interchange=false&bar_color=5c0000&bar_color_cover=true)](https://github.com/kittinan/spotify-github-profile)![Captura](https://github.com/user-attachments/assets/df4dd3e3-e8b1-4e7f-891f-17a4a0ed9ea7) *hellooo   ㅤ󠀠󠀠this  is a sign of   ㅤ󠀠 lazy me*
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31x7nxf2ao2ae5e4d62yclnezpn4&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&bar_color=53b14f&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
+![AMO EL TRIO](https://github.com/user-attachments/assets/bbd3370e-6b8f-45ca-a960-b44cbe0ca992)![romano-spain](https://github.com/user-attachments/assets/abf4b691-012c-411c-bbb1-8f6166cc157e)
 
-
-  ㅤ󠀠󠀠  ㅤ󠀠󠀠   ㅤ󠀠󠀠  ㅤ󠀠󠀠  ㅤ󠀠󠀠  ㅤ󠀠󠀠  ㅤ󠀠󠀠  ㅤ󠀠󠀠  ㅤ󠀠󠀠  ㅤ󠀠󠀠  ㅤ󠀠󠀠  ㅤ󠀠󠀠 ㅤ󠀠󠀠**me** and gang <3 *margo , zee , me*
-
- ㅤ󠀠󠀠ㅤ󠀠󠀠tysm ㅤ󠀠󠀠ㅤ󠀠󠀠margo
- ㅤ󠀠󠀠and  ㅤ󠀠󠀠ㅤ󠀠󠀠  zee  ㅤ󠀠󠀠ㅤ󠀠󠀠 ㅤ󠀠󠀠ㅤ󠀠󠀠
-
-
-for being such friends
-
-  ㅤ󠀠󠀠ㅤ󠀠󠀠**ilysm**
-                ㅤ󠀠󠀠  ㅤ󠀠󠀠   
-
-
-
- ㅤ󠀠󠀠ㅤ󠀠󠀠 ㅤ <3 ㅤ󠀠󠀠ㅤ󠀠󠀠
-
-![romano-spain](https://github.com/user-attachments/assets/bbb3d358-b22d-488a-bdaf-4eb1e7b51dce)
-
-JDJSJDSJDJSD
-i love this
