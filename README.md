@@ -3,4 +3,4 @@
 ![romano-spain](https://github.com/user-attachments/assets/abf4b691-012c-411c-bbb1-8f6166cc157e)
 
 ![](https://komarev.com/ghpvc/?username=your-github-username&abbreviated=true)
-⠀ ⠀ <a href=https://pannys.atabook.org/>atabook</a> ⠀  <a href=https://pan4asim.straw.page>straw</a>⠀  <a href=https://revospring.net/@frukforever//>revospring</a> ⠀ <a href=https://en.pronouns.page/@ninipan//>prns.</a>
+⠀ ⠀ <a href=https://pannys.atabook.org/>atabook</a> ⠀  <a href=https://pan4asim.straw.page>straw</a>⠀  <a href=https://rentry.co/pan4asim//>rentry</a> ⠀ <a href=https://en.pronouns.page/@ninipan//>prns.</a>
